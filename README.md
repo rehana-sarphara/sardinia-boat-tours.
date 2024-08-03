@@ -1,2 +1,2 @@
 # sardinia-boat-tours.
- Experience Sardinia’s beauty with our boat tours! Explore crystal-clear waters, hidden coves, and stunning coastlines with expert guides. Enjoy customizable excursions and luxury boat rentals. Book your adventure today and discover Sardinia like never before. Unforgettable maritime adventures await!
+  Welcome to[ Sardinia Boat Tours](https://www.sardiniaboattour.com/en/)! Discover the stunning beauty of Sardinia with our unforgettable boat trips. Whether you’re looking to [tour Sardinia, Italy,](https://www.sardiniaboattour.com/en/) or need a boat rental in Sardinia, we offer customizable excursions and luxury rentals. Explore crystal-clear waters, hidden coves, and breathtaking coastlines with expert guides.
